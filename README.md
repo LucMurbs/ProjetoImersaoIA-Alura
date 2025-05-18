@@ -1,4 +1,4 @@
-# ProjetoImersaoIA-Alura
+# Assistente de Ideias para Negócios
 🚀 Seu Novo Aliado para Impulsionar Negócios! 🚀
 Cansado de não saber o que fazer para atrair mais clientes e melhorar o faturamento do seu negócio? 🌊💼
 
