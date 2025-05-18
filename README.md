@@ -2,7 +2,7 @@
 🚀 Assistente de Ideias para Negócios: Desbloqueie o Potencial do Seu Negócio! 🚀
 Está buscando novas formas de atrair clientes e aumentar o faturamento? 🌊💼
 
-Prepare-se para impulsionar sua jornada empreendedora com o Assistente de Ideias para Negócios! 🤖💡 Uma ferramenta inovadora, desenvolvida com inteligência artificial, para te ajudar a gerar insights valiosos e planos de ação eficazes com apenas alguns cliques.
+Prepare-se para impulsionar sua jornada empreendedora com o Assistente de Ideias para Negócios! 🤖💡 Uma ferramenta inovadora, que usa inteligência artificial, para te ajudar a gerar insights valiosos e planos de ação eficazes com apenas alguns cliques.
 
 Motivação do Criador:
 
